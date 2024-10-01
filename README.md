@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **I think i'm funny during the conversations**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:singhadarsh6205905@gmail.com</h3>
 <p align="left">
 </p>
 
