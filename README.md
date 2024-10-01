@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **singhadarsh6205905@gmail.com**
 
-- ⚡ Fun fact **I think i'm funny during the conversation with friends**
+- ⚡ Fun fact **I think i'm funny during the conversations**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
